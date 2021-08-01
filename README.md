@@ -1,1 +1,1 @@
-# D4nnyes.github.io
+Map of My Favorite Destinations
